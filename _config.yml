@@ -1,6 +1,4 @@
-remote_theme: pages-themes/cayman@v0.2.0
-plugins:
-- jekyll-remote-theme 
+theme: minima
 title: Observations, Opinions & Opens 
 author: wilma van wezenbeek
 description: I like to write, listen, observe and then see opportunities or connections
