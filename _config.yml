@@ -1,4 +1,4 @@
-theme: minima skin:sunrise
+theme: minima "minima: skin:sunrise"
 title: Observations, Opinions & Opens 
 author: wilma van wezenbeek
 github: https://github.com/wvanwezenbeek
