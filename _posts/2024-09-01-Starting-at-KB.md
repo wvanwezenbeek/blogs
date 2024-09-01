@@ -1,0 +1,10 @@
+I start (tomorrow, Monday, really) on September 1, 2024 at the KB, the national library. I am incredibly excited about this. During the summer vacation I read a few books in preparation (mind you, I also just listened to books by Mathijs Deen😉). One was “The Consolation of Philosophy,” an older book by Alain de Botton, which I like to read or listen back to from time to time. The other was on the recommendation of Lily Knibbeler, my predecessor at the KB, namely the book “Collaborating on Social Tasks” by Manon de Caluwé and Edwin Kaats (in Dutch: “Samenwerken aan maatschappelijke opgaven”). 
+I am not going to summarize this book, now is not the time. However, I will take three thoughts with me into the coming weeks and months, where I will undoubtedly admire and occasionally marvel at much of who and what I encounter. 
+Namely:
+1. *“Consent is easier to achieve than consensus.”* What a wonderful connection between the place where I come from (Npuls) where work is done with consent building in the internal organization, AND this statement. It is liberating to realize that for some subjects it is not at all necessary to obtain consent from every participant in the process separately. Because you can assume that parties agree on the direction. Provided, of course, that this direction is established through interaction and cooperation. 
+2. *“Space without frameworks becomes emptiness.”* Very nice to see in the book how my own and-and approach recurs. “That network is nice, but the decisiveness is in the action.” But also, “All that action is nice, but the learning effect is in the network.” There is a third way in which we pay attention to the collective perspective as well as the enthusiasm of individual players or organizations. 
+3. *“Cheerful resilience”.* This is what I would like to work on. To be someone who puts others first, and has an open mindset and a broad perspective. And to have the ability to connect, grow and learn under pressure and especially in difficult conditions. 
+I am really looking forward to it!
+
+
+
