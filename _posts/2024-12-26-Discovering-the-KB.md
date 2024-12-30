@@ -8,7 +8,3 @@ We recently finished my seven “discover columns” as I [mentioned](https://wv
  
 When I had just started working at the KB/the national library, we were thinking about my introductory period, but also about ourselves as KB and the sometimes unfamiliarity with the scope of what we do, and what that means behind the scenes. So we decided  to combine both things. And I think it worked; during external meetings many people I spoke to referred to the columns. It is hard to tell what my biggest surprise was. In part, the visits were familiar to me because of my (university) library background. I loved every visit because everyone enthusiastically told the story, and it was incredibly professionally supported by the colleagues in Communications (I earlier mentioned Helen and Antoinette). Many thanks to them, and of course the people who starred in the columns: Frank, Matine, Julia, Aicha, Karijn, Marjolijn and Jeffrey! 
 
-<figure>
-    <img src="_posts/images/picturewilmakb.jpg">
-    <figcaption>There is a first time for everything: getting the ordered books from our closed stacks.</figcaption>
-</figure>
