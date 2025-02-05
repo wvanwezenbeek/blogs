@@ -1,6 +1,7 @@
 I started as the KB's new Director General last September and, since then, I’ve met many colleagues and reported on our exchanges in this column. These visits were invaluable to me and I hope you also enjoyed the glimpses behind the scenes at the KB. How hard everyone works to meet our missions! 
 
-I cannot help but think about all the customers we delight when we find an item that they had long been searching for. About the incredible ICT work that keeps our systems running so that people can browse through [DBNL] (https://www.dbnl.org/), [Delpher](https://www.delpher.nl/nl/kranten) and the [Online Library](https://www.onlinebibliotheek.nl/). How about our metadata services, that help you to actually find our books, newspapers and magazines in our catalogue? 
+I cannot help but think about all the customers we delight when we find an item that they had long been searching for. About the incredible ICT work that keeps our systems running so that people can browse through
+[DBNL](https://www.dbnl.org), [Delpher](https://www.delpher.nl/nl/kranten) and the [Online Library](https://www.onlinebibliotheek.nl/). How about our metadata services, that help you to actually find our books, newspapers and magazines in our catalogue? 
 
 Let's not forget about the more than 2 billion digital files we store and all the questions that are answered by customer service. Not to mention the public library organisations we help get started on the topic of digital citizenship. And who would have thought I could get so excited about mould in the warehouse! (Obviously not if we have it, but that we are so good at detecting and combating it in time). 
 
