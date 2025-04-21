@@ -12,8 +12,7 @@ One of the recommendations during the course was to read the (Dutch) book by [Re
 ### Collective action
 Whatever we want to do, we cannot do it on our own. Not as an individual, not as an individual institute and not within one country. We need to transcend that institutional interest. And that is not easy. It is something I have learned in the past months, at KB, the national library of the Netherlands. The things we want to achieve (our ultimate goal is to make us in The Netherlands more creative, skilled and smart) cannot and should not be our "individual" goals. We work on this together, with so many others. And the good thing is, we are already doing this (just check our (Dutch) [2024 annual report](https://www.kb.nl/nieuws/kb-in-2024-grote-stappen-in-leesbevordering-en-data-onderzoek) for this). If we (in the educational and research institutes) want to be able to have a choice in the near future when selecting a learning management system, a cloud provider or data supporting software, we need to get our act together, and start to stimulate alternative solutions to avoid being left with one direction: the Big Tech “funnel”. 
 
-![image](![image](https://github.com/user-attachments/assets/32bbe0e5-7d00-48a6-bd04-b28e882a2da7)
-)
+![image](https://github.com/user-attachments/assets/32bbe0e5-7d00-48a6-bd04-b28e882a2da7)
 *Picture from Surf Course; us playing the [Value Compass Game](https://www.surf.nl/en/values-compass-the-game-discuss-dilemmas-of-digitisation)* 
 
 ### Neutrality is not the right word 
