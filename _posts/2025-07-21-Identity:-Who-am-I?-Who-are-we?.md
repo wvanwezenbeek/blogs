@@ -10,7 +10,7 @@ In the conversations I had with them (separately), we came up with the ‘DNA of
 ### Preserving your identity
 Finally, this brings me to the realisation that it is not only about accountability (as I mentioned earlier in my blog [No Twist in Our Sovereignty’](https://wvanwezenbeek.github.io/blogs/2025/04/21/No-twist-in-our-sovereignty.html), the library as an ‘accountable’ space), or, in that same blog, the importance of preserving public ownership, but also about (helping) to preserve one's own, the local and the (sometimes inter-) national identity. Artificial Intelligence was of course a strong topic of conversation at these conferences, and the feeling that we are slowly moving away from our own identity, and subordinating it to collective identity, prevails. And this is where we can, have, and must play a role as libraries.
 
-![Tildaswinton-tiny](https://github.com/user-attachments/assets/8d3a9d54-654d-4c91-a4a9-9c078a4f4a36)<width="100" height="200">
+![Tildaswinton-aangepast](https://github.com/user-attachments/assets/fa6a98a9-ef86-4bde-8ae0-1e606f7a1518)
 *Tilda Swinton by John Byrne at Scottish National Portrait Gallery. Talking about identity. As Byrne put it: "... In other words, I was out to capture her essence".*
 
 ### What does it mean?
