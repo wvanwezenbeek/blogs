@@ -11,7 +11,9 @@ In the conversations I had with them (separately), we came up with the ‘DNA of
 Finally, this brings me to the realisation that it is not only about accountability (as I mentioned earlier in my blog [No Twist in Our Sovereignty’](https://wvanwezenbeek.github.io/blogs/2025/04/21/No-twist-in-our-sovereignty.html), the library as an ‘accountable’ space), or, in that same blog, the importance of preserving public ownership, but also about (helping) to preserve one's own, the local and the (sometimes inter-) national identity. Artificial Intelligence was of course a strong topic of conversation at these conferences, and the feeling that we are slowly moving away from our own identity, and subordinating it to collective identity, prevails. And this is where we can, have, and must play a role as libraries.
 
 ![Tilda Swinton_zelf aangepast](https://github.com/user-attachments/assets/50c7bd90-2786-4175-8b76-593a0ada9d38)
-*Tilda Swinton by John Byrne at Scottish National Portrait Gallery. Talking about identity. As Byrne put it: "... In other words, I was out to capture her essence".*
+
+*Tilda Swinton by John Byrne at Scottish National Portrait Gallery. Talking about identity. 
+As Byrne put it: "... In other words, I was out to capture her essence".*
 
 ### What does it mean?
 Another question, which I have been asking myself quite often lately, is ‘what does it mean?’. That is, it is not enough to set a mission, vision or goals if you don't understand what it means or is going to mean. Not that you can fully predict this, but you have to have a picture of it, and then be prepared to bear the consequences. I am incredibly looking forward to working with all the smart and wise people inside and outside our organisation in the coming period to give meaning to the importance of libraries. To ensure the preservation of public ownership as well as the different identities through which you become who you want to be, whether as an individual or as another ‘entity’. Where both difference and equity matter. And not just to be ‘surviving’, but actually to be ‘living’. 
