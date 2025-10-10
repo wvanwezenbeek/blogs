@@ -1,0 +1,20 @@
+In [my blog post](https://wvanwezenbeek.github.io/blogs/2025/04/21/No-twist-in-our-sovereignty.html) from April 2025, I referred to Reijer Passchier's book (‘The Curse of Big Tech’), which was recommended during the [SURF](https://www.surf.nl/en) Course on Digital Sovereignty (for Executives in the field of education & research) organised earlier this year.
+
+### "Do something"
+Just under a month ago, I read Tim Fransen's [essay](https://www.volkskrant.nl/cultuur-media/zonder-hoop-zijn-we-nergens-volgens-filosoof-tim-fransen-maar-hoe-houd-je-hoop-in-sombere-tijden~bea7e9cf/?referrer=https%3A%2F%2Fwww.google.com%2F) (in Dutch) in “De Volkskrant” newspaper, which included the quote: ‘Take heart and do something.’ He refers to ‘economic democracy.’ Here too, as with Passchier, there is the observation that power is increasingly in the hands of ‘big capital’ rather than countries or nations. We should ensure, says Fransen, that we regain control of our society, so that important decisions are not determined by shareholders who recklessly maximise their profits. 
+
+### Beacons of light
+I have been the director general of the KB, the national library of the Netherlands, for over a year now. Last week, I gave a brief presentation on (among other things) our own organisational development. 
+It is important to note that we organise ourselves around societal challenges, with the aim of contributing to a more creative, skilled and smarter Netherlands. And we do this in and for a society that is changing rapidly and profoundly, and in which people are bombarded with information in enormous quantities and forms. 
+Especially now, in these times of increasing polarisation, with opinions and groups that are sometimes diametrically opposed, it is important that we contribute to making information accessible and preserving it for the long term for every Dutch citizen, as well as playing a role in ensuring its independence and reliability. The constitutional right to freedom of expression includes the right to freedom of opinion. And as the national library, we play a key role in this. For everyone in our society. Regardless of everything that is changing around us, whether it be political choices, social developments or sustainability issues.
+And that is more necessary than ever in the times we live in. I previously quoted the statement by our former Minister of Education, Culture and Science, Eppo Bruins, who called libraries “beacons of light”. That is why it is more important than ever that we organise ourselves better and make clear what we can do. So that our light shines ever brighter.
+
+### Active citizens
+These times demand something different from all of us, as Fransen points out. A new role. No longer that of consumers pursuing their individual desires, but of active citizens standing up for our shared world. 
+And public institutions, such as libraries, can facilitate and encourage this. Together, we can also have power in this. ‘Power always arises from people acting together. So let's join forces,’ Fransen concludes in his essay. 
+
+### More voices
+As the national library, we want to move with society. That means we need to be flexible, able to work well together and learn from what we do. We want to be an organisation in which we trust each other and are allowed to disagree. Where discussions and dialogue take place, where giving and taking responsibility is the norm, where it is okay to make mistakes – as long as we learn from them. With an outward focus, and relevant to the society around us. I spoke about this at an internal meeting. I truly feel that, as the national library, we can literally give more voices a chance to be heard. Together with all my colleagues, I want to work hard to achieve this in the coming period.
+
+<img width="722" height="482" alt="image" src="https://github.com/user-attachments/assets/4d40b085-1e05-44f1-a2c2-3cc7ad436d1c" />
+*We facilitated a panel discussion about AI, organised by our partner Kaf. “Proposition: social problems cannot be solved by AI”*
