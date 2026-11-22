@@ -10,6 +10,7 @@ We discussed a bit about the importance of **working together**. Even in researc
 From this topic we smoothly enter the subject of “life long learning”. Also for us, me being 59 and Jessica 55, that still counts. Perhaps we now know better what choices we have made, what stayed with us, what matured, and what changed. Our age makes us wonder “what is the good we can do” – and how we can be true to ourselves. We are not so focused on “powerplay”, particularly as we have both already achieved significant career goals, though we still need to show courage, resilience and leadership, but that feels more comfortable than twenty years ago.
 
 <img width="272" height="408" alt="Jessica_sm" src="https://github.com/user-attachments/assets/0619db00-c054-40eb-83d9-db091abffbc4" />
+<BR>
 *Jessica Gardner.*
 
 ### "It is all connected"
